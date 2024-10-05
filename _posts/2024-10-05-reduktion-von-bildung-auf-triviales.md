@@ -42,7 +42,7 @@ Dazu gehört die Fähigkeit,
 
 ➔ Ein breites Allgemeinwissen, das über die Anforderungen des Arbeitsmarktes hinausgeht, ist dabei unerlässlich.
 
-## Schulen müssen wieder zum Hort von Bildung werden, und nicht zu Lernfabriken reduziert werden
+## Schulen müssen wieder zum Hort von Bildung werden, und nicht zu Lernfabriken reduziert 
 
 Die Schule spielt hierbei eine entscheidende Rolle. 
 
